@@ -1,0 +1,5 @@
+## Value AI
+Welcome to **Value AI**, where AI unlocks smarter and more profitable crypto trading.
+
+## About us
+Value AI Agent combines the power of artificial intelligence with the dynamic crypto market. The AI scans trends and identifies the coins with the highest potential, enabling traders to make smarter and more profitable decisions. AI with real utility – built for the community and their success.
